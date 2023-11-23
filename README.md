@@ -1,1 +1,1 @@
-"# tan-ra" 
+ez egy szar xd
